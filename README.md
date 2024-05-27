@@ -1,1 +1,1 @@
-visual Information Processing
+Visual Information Processing
